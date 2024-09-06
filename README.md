@@ -1,1 +1,1 @@
-![resume-preview](Contents/IW-resume-8-15-24-preview.png)
+![resume-preview](Contents/IW-resume-9-5.png)
